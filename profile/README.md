@@ -9,3 +9,4 @@ Our mission is to amplify the voices of men of color in technology, support thei
 * [Join us through Involved@TU](https://involved.towson.edu/organization/bitbrothers)
 * Email: [bitbrotherstu@gmail.com](mailto:bitbrotherstu@gmail.com)
 * Instagram: [@bitbrotherstu](https://www.instagram.com/bitbrotherstu/)
+* Linkedin: [@BitBrothers Linkedin Page](https://www.linkedin.com/groups/42837283/)
